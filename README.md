@@ -1,1 +1,1 @@
-# -Seker-Adas-Projesi
+# -Seker-Adasi-Projesi
